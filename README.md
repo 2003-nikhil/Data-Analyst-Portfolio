@@ -17,7 +17,7 @@ I am a certified data analyst with practical knowledge of SQL, Power BI, Python,
 
 ## 📚 Certifications
 
-- **Data Analytics** – IHUB IIT RoorkeeM
+- **Data Analytics** – IHUB IIT Roorkee
 ---
 
 ## 💼 Projects
