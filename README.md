@@ -3,7 +3,7 @@
 
 📍 Faridabad, India  
 📱 +91-8076644052  
-📧 nikhilgupta@email.com  
+📧 nikhilxyz2003@gmail.com 
 🔗 [LinkedIn](https://www.linkedin.com/in/your-link)  
 🔗 [GitHub](https://github.com/2003-nikhil)
 
