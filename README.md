@@ -53,7 +53,7 @@ I am a certified data analyst with practical knowledge of SQL, Power BI, Python,
 ## 📞 Contact
 
 - 📱 **Phone**: +91-8076644052  
-- 📧 **Email**: nikhilgupta@email.com  
+- 📧 **Email**: nikhilxyz2003@gmail.com 
 - 🔗 **GitHub**: [github.com/2003-nikhil](https://github.com/2003-nikhil)
 
 ---
